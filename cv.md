@@ -4,4 +4,4 @@
 4. Technical skills: HTML
 5. Without work experience
 6. Education: Belarusian State University of Informatics and Radioelectronics (2014 - 2017)
-7. English language skills: A1. Elementary
+7. English language skills: A2. Elementary
